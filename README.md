@@ -1,1 +1,1 @@
-# PrudhviPortfolio
+# Mani Kanth's Portfolio
